@@ -1,6 +1,6 @@
 # Spectacular-Fantastic-LOGO-Layer-design
 
-Fantastic  Layer Design in Mswlogo. I'm taking Guarantee th't , U'll Love♥ it.
+Fantastic  Layer Design in Mswlogo. We're taking Guarantee th't , U'll Love♥ it.
 
 Download The **layers.LGO** from above and enjoy the pattern Buddy ☺
 
