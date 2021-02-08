@@ -6,6 +6,8 @@ Download The **layers.LGO** from above and enjoy the pattern Buddy ☺
 
 ***Have a nice DEV Journey*** **[‘ᴥ’]**
 
-# Languages I Know: 
+# Our Motto 
 
-***HTML ; CSS ; JavaScript ; HTA ; Bootstrap ; Python ; LOGO ;***
+We just want to help people by getting their problems solved;
+
+***Just Follow us , Star our Repos and further get nice projects to see*** ☺
